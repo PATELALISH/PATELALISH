@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @PATELALISH
+- 👀 I’m interested in Java
+- 🌱 I’m currently learning Java
+- 📫 How to reach me alishpatel825@gmail.com
