@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PATELALISH
-- 👀 I’m interested in Java
-- 🌱 I’m currently learning Software Development diploma
+- 👋 Hi, I’m @ALICE
+- 👀 I’m interested in alot of things
+- 🌱 I’m currently on break
 - 📫 How to reach me @alishpatel825@gmail.com
